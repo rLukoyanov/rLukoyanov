@@ -13,4 +13,4 @@
 ## Ссылки
 [Карьерный лист](https://talent.kruzhok.org/user/127504)  по олимпиадам ОНТИ (сейчас НТО)
 
-[Телега](https://t.me/rLukoyanov)
+[Телеграм](https://t.me/rLukoyanov)
